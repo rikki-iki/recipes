@@ -1,4 +1,4 @@
-# Salmon
+# Asian salmon
 
 ## Ingredients
 

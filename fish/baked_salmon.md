@@ -17,3 +17,5 @@ Place salmon over oil and season, place 1-2 slices of lemon on top, and a nob of
 Collect the foil up and fold over the edges to seal it tight, but leaving space inside for steam to gather. 
 
 Bake on 250 for 15 minutes.
+
+Serve with [sauteed greens](https://github.com/rikki-iki/recipes/blob/master/sides/sauteed_greens.md)

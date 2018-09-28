@@ -24,4 +24,4 @@ first until just golden. Turn over and fry for a few more minutes until chicken 
 Add wine to the pan and some more butter if needed, and simmer for a minute or two. Pour over the chicken and sprinkle
 with the chopped parsley.
 
-Serve with mashed potatoes and sauteed greens.
+Serve with [mashed potatoes](https://github.com/rikki-iki/recipes/blob/master/sides/potato_mash.md) and [sauteed greens](https://github.com/rikki-iki/recipes/blob/master/sides/sauteed_greens.md).

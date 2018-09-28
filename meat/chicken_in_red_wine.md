@@ -3,7 +3,7 @@
 ## Ingredients
 
 * 500g chicken thigh
-* 2tbs balsamic vinegar
+* 2 tbs balsamic vinegar
 * 2 tbs extra virgin olive oil
 * 2 anchovies
 * 6 garlic cloves
@@ -14,6 +14,8 @@
 
 ## Method
 
-Combine ingredients in bowl and marine the chicken for at least 30 mins.
+In a mortar and pestle, mash the anchovies, sugar and garlic gloves with a pinch of coarse salt. Add olive oil and balsamic vinegar and mix until emulsified.
+
+Combine with remaining ingredients in bowl and marine the chicken for at least 30 mins.
 
 Fry the chicken and serve with mashed potato and green veg.

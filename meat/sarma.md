@@ -1,18 +1,25 @@
-# Sarma (incomplete)
+# Sarma (cabbage rolls)
 
 ## Ingredients
 
-* 500g Pork and veal mince
-* 1 jar of sauerkraut
-* Rice
-* Get the ingredients from Marin's mum
+* Jasmine rice (unwashed) 8 tbsp per kilo
+* 2 onions finely diced
+* Bacon (good quality, smoked) thickly sliced
+* Saurkraut 
+* 1kg pork mince
+* 1kg beef mince
+* 2 whole pickled cabbage heads
+* 1 tsp sweet paprika
+* 2 tsp salt (to taste)
+* 2 tsp vegeta (to taste)
+* 2 tsp pepper (to taste)
+* 2 eggs
+* 4 tbsp tomato paste
 
 ## Method
 
-In a pot, put ½ a large jar of sauerkraut then place the sarma sitting up around the edges of the pot, making your way to the centre of the pot as it gets fuller.
+Fry onions on high. Add mince and brown. Add paprika fry until all water is gone. Turn heat down and mix through rice. Check for seasoning then turn heat off and add eggs and mix through.
 
-Add the remaining sauerkraut on top and cover with water. 
+Assemble Sarma (cut stem our of a cabbage leaf, place 2-3 tbs of mince in the middle and roll tightly, tucking the ends in so it's sealed) and pack into deep pot, layered with the bacon and Saurkraut.
 
-Add a can of chopped tomatoes (or 1 tablespoon of tomato paste) and cook.
-
-The sarma is finished when it feels soft as you poke it with a fork.
+Cover the top with spare cabbage leaf and a plate to weigh it down. Pour in one mug of water mixed with tomato paste and salt. Bring to boil over high heat then simmer until the cabbage is soft - about an hour.

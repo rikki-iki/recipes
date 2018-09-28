@@ -1,4 +1,4 @@
-# Show cooker lamb
+# Lamb in red wine (slow cooker)
 
 ## Ingredients
 

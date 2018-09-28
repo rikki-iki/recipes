@@ -1,4 +1,4 @@
-# Lamb cutlets
+# Honey Dijon Lamb cutlets
 
 ## Ingredients
 
@@ -21,7 +21,7 @@ Heat a large non-stick frying pan over medium heat.
 
 Add drained lamb cutlets, reserving the marinade and cook for 3 minutes on each side. When done, remove the cutlets from the frying pan and keep warm.
 
-Stir the stock into the same frying pan, scraping any sediment from the bottom. Stir in the remaining marinade, bring to the boil and stir until thickened.
+Stir the stock into the same frying pan, scraping any sediment from the bottom. Stir in the remaining marinade, bring to the boil and stir until slightly thickened.
 
 This dish is best served with a salad.
 

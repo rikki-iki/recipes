@@ -18,4 +18,4 @@ In a mortar and pestle, mash the anchovies, sugar and garlic gloves with a pinch
 
 Combine with remaining ingredients in bowl and marine the chicken for at least 30 mins.
 
-Fry the chicken and serve with mashed potato and green veg.
+Fry the chicken and serve with [mashed potato](https://github.com/rikki-iki/recipes/blob/master/sides/potato_mash.md) and [green veg](https://github.com/rikki-iki/recipes/blob/master/sides/sauteed_greens.md).

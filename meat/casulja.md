@@ -1,5 +1,7 @@
 # Casulja 
 
+Named so because it's a mix between Pasulja (Balkan bean soup) and Casoulete (French bean stew). It's more of a stew than a soup but it's influenced by both.
+
 ## Ingredients
 
 * 4 garlic cloves
@@ -23,7 +25,7 @@
 
 # Method
 
-Cook garlic, onion, rosemary, bay, vegeta, chilli, paprika till softened and add wine to deglaze and tomato paste. 
+Cook garlic, onion, rosemary, bay, vegeta, chilli, paprika till softened and add wine to deglaze then tomato paste. 
 Add meat and stock and water. Simmer for 30 minutes. 
 Add beans and simmer for 1 hour. 
 Add vegetables and cook until veg is ready.
